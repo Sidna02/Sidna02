@@ -1,3 +1,1 @@
-### Hi there 👋
-
-Klee is cute
+Noob developer
